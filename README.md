@@ -1,4 +1,4 @@
-## Game Presentation
+## Hades Game Presentation
 
 Playing the Hades game, I shot a review video of **"Dramatic Elements"** and **"Formal Elements"**. </br>
 My presentation video is available in the PowerPoint I uploaded, but I'm putting the link below.
